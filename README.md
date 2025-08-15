@@ -1,2 +1,2 @@
-# deluxelzy
-deluxelzy（上档次的黎泽懿）
+# deluxelzy（上档次的黎泽懿）
+一个在看了某知名冰丝席广告后想出来的大饼
